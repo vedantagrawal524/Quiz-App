@@ -1,8 +1,8 @@
 # Quiz Application
 
+https://github.com/user-attachments/assets/b2e5e68f-072e-4181-b873-6ae915bc6602
 
-https://github.com/user-attachments/assets/f128b957-5110-4fad-bd84-1b4c54b63a7e
+https://github.com/user-attachments/assets/b7ae947f-a187-4bdc-8699-0efbce8d9f8d
 
 
-https://github.com/user-attachments/assets/d01c0197-9fb2-4942-a666-76ea95f7f35d
 
